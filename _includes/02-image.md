@@ -1,0 +1,1 @@
+![Picture of Anna Hopkins](https://lh3.googleusercontent.com/8rqZqE39j35jR_Ehsi8m73YBDru2o_1e1o2iBARu5N1LU54nkwIW8P38H4LHyr1ufqSA2dAW7vkILkJgdj1h2H63zrxM-MfUBbi0EnAqJZw1R0rDwkeNnDAoJOoHq8sqXJbUOydtVg=w2400)
