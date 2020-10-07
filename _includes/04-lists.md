@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+# My favorite :mushroom: list
+*Octopus stinkhorn
+*Fly Amanita
+*Chicken of the woods
+*Indigo Milk Cap
